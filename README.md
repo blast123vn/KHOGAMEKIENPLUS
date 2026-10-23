@@ -1,0 +1,2 @@
+# KHOGAMEKIENPLUS
+kho game tổng
